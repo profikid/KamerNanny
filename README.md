@@ -2,6 +2,6 @@
 Hier stond de repo van KamerNanny.
 
 Ik heb besloten om de repo weg te halen. 
-Het automatiseren van handelingen in de spelletjeswereld wordt gezien als valsspelen!
+Als je een baliemedewerker wegautomatiseerd heet het innovatie, maar als je een spelletjes automatiseert is het valsspelen.
 
-Ik gun iedereen een fair game!
+Ik gun iedereen een fair game! (ook voor de baliemedewerker)
