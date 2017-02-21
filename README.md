@@ -6,4 +6,7 @@ Als je een baliemedewerker wegautomatiseerd heet het innovatie, maar als je een 
 
 Gebruik van bots levert je een ban op. Wees daarvan bewust!
 
-Ik gun iedereen een fair game! (ook voor de baliemedewerker)
+Ik gun iedereen een fair game en gelijk speelveld.
+
+Cheers
+Laurens
